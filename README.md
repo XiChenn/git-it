@@ -1,1 +1,1 @@
-that's funny!
+http://jlord.us/git-it/
